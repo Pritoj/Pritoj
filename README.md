@@ -9,7 +9,7 @@
 
 ## The times/Hours I like to work 🕰
 - I will be available between 10am to 4pm always. Some days I like to start working at 7 am and others I'm content with starting at 10 am.
-- I like blocking times to do focussed work so kep an eye out on that calendar when you book a meeting with me.
+- I like blocking times to do focussed work so keep an eye out on that calendar when you book a meeting with me.
 
 ## The best ways to communicate with me 📬
 - I'm a big fan of async communication. 
